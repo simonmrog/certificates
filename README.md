@@ -1,1 +1,1 @@
-Certificates of some online programming courses I took and approved
+Certificates of some online programming courses I've took and approved
